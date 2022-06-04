@@ -1,5 +1,5 @@
 # 💫About Me :
-Hello, I am Manasi Jadhav. 
+👋Hello, I am Manasi Jadhav. 
 I am an Information Technology engineering student, graduating in 2022.
 
 ## 🌐Socials
